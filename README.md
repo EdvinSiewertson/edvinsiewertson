@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi! ✨
+📧 edvin.siewertson@gmail.com
+
 
 <!--
 **EdvinSiewertson/edvinsiewertson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
