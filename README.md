@@ -1,4 +1,4 @@
-### Hi! ✨
+### Hi, nerd!
 📧 edvin.siewertson@gmail.com
 
 
