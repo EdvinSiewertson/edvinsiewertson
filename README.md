@@ -1,6 +1,4 @@
-## Hi, welcome!
-
-
+## Hi, welcome! :wave:
 
 ### Contact me
 - [Website](https://www.sedvin.com)
