@@ -1,5 +1,8 @@
 ### Hi, welcome!
 
+[LinkedIn](https://www.linkedin.com/in/edvin-siewertson/)
+
+
 
 <!-- 📧 
 **EdvinSiewertson/edvinsiewertson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
