@@ -1,4 +1,4 @@
-## Hi, welcome! :wave:
+## Hey! :wave:
 
 ### Contact me
 - [Website](https://www.siewertson.com)
