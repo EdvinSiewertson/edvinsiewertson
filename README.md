@@ -1,4 +1,4 @@
-### Hey! :wave::sparkles:
+### :wave::sparkles:
 
 #### Contact me
 - [Website](https://www.siewertson.com)
