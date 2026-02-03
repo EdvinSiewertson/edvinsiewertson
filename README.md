@@ -1,3 +1,3 @@
-#### Hi! :wave:
+#### 👋: Hi! 
 
-You can reach me through [LinkedIn](www.linkedin.com/in/edvinsiewertson)
+📮 You can reach me through [LinkedIn](https://www.linkedin.com/in/edvinsiewertson/)
